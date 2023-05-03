@@ -1,1 +1,1 @@
-# batata-roxa-do-mato
+# pimenta-biquinho
